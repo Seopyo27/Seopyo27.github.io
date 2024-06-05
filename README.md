@@ -1,1 +1,0 @@
-# Seopyo27.github.io
